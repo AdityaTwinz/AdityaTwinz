@@ -1,6 +1,6 @@
-<h3 align="center">Hi 👋, I'm Rubby Verc Irsak 559</h3>
+<h3 align="center">Hi 👋, I'm Aditya Putra Mahesa XD</h3>
 
-[![RubbyVexyx-559](https://i.ibb.co/BZ3k3gH/20230710-172311-0000.png)](https://wa.me/+18018499372?text=*Assalamualaikum%20Bang%20Rubby*)
+[![AdityaTwinz](https://i.ibb.co/BZ3k3gH/20230710-172311-0000.png)](https://wa.me/+6283861183874?text=*Assalamualaikum%20Bang*)
 
 
 
