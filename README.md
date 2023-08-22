@@ -6,7 +6,7 @@
 
 ##### About Me
 
- - 👨‍🦱 My name is `Rubby Verc Irsak 559`
+ - 👨‍🦱 My name is `Aditya Putra Mahesa`
 
  - 🏠 Live in `Semarang, Indonesia`
 
